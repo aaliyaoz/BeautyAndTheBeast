@@ -1,0 +1,1 @@
+Belle's father goes out to the market to get some stuff and decided to bring backa rose from belle and when he decides to get one from the territory of the beast, the beast keeps him in his dungeon. Belle decides to look for her father.
